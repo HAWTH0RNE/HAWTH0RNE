@@ -23,7 +23,7 @@ ${\color{darkgray}\textsf{taken ৻ꪆ}}$
 
 ️<img width="693" height="11" alt="IMG_8947" src="https://github.com/user-attachments/assets/16cb0614-5f47-4e9f-b84f-f1ca9d8b3df2" />
 
-[あたbook](
+[あたbook](https://houseofwolves.atabook.org/)
 
 
 
