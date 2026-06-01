@@ -13,11 +13,11 @@
 ️
 <img width="736" height="364" alt="IMG_8945" src="https://github.com/user-attachments/assets/8a4e72a9-8203-4f42-80ed-b48e00bb946b" />
 
-<img width="20" height="20" alt="IMG_8770" src="https://github.com/user-attachments/assets/a6082316-0829-4a25-9ae6-9d3e314d6b42" />️
-${\color{darkgray}\textsf{kraze  //   zephyr}}$ 
-<img width="20" height="20" alt="IMG_8771" src="https://github.com/user-attachments/assets/f6403d68-ab19-456c-80c5-e7ca1b4fd1eb" />
+${\color{darkgray}\textsf{kraze // zephyr}}$
+
 
 ${\color{darkgray}\textsf{he/her}}$
+
 
 ${\color{darkgray}\textsf{taken ৻ꪆ}}$
 
