@@ -4,6 +4,7 @@
   
 ![](https://komarev.com/ghpvc/?username=nottheghost&label=☠︎︎&color=010101)
 
+[please read! this is for awareness.](https://docs.google.com/document/d/10728yw8XkrAOOI6alO7lcopWTrfCbNShuEnLMyYU_P0/edit?usp=drivesdk)
 
 
 <img width="20" height="20" alt="IMG_8770" src="https://github.com/user-attachments/assets/a6082316-0829-4a25-9ae6-9d3e314d6b42" />
@@ -19,15 +20,6 @@
 <img width="99" height="56" alt="IMG_8777" src="https://github.com/user-attachments/assets/5aacb81d-0618-4eed-bdfe-112f24b28e6a" /> <img width="99" height="55" alt="IMG_8775" src="https://github.com/user-attachments/assets/3b7409e0-d71b-4b00-8819-c7b8def209a4" />
 
 
-<div align="center">
-
-read this.
-
-
-⬇️
-
-
-[observation doc](https://docs.google.com/document/d/10728yw8XkrAOOI6alO7lcopWTrfCbNShuEnLMyYU_P0/edit?usp=drivesdk)
 
 
 ️<img width="693" height="11" alt="IMG_8947" src="https://github.com/user-attachments/assets/16cb0614-5f47-4e9f-b84f-f1ca9d8b3df2" />
