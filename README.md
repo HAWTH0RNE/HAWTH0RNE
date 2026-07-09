@@ -4,7 +4,6 @@
   
 ![](https://komarev.com/ghpvc/?username=nottheghost&label=☠︎︎&color=010101)
 
-[please read! this is for awareness.](https://docs.google.com/document/d/10728yw8XkrAOOI6alO7lcopWTrfCbNShuEnLMyYU_P0/edit?usp=drivesdk)
 
 
 <img width="20" height="20" alt="IMG_8770" src="https://github.com/user-attachments/assets/a6082316-0829-4a25-9ae6-9d3e314d6b42" />
