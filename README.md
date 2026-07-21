@@ -19,7 +19,5 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 
-<img width="4000" height="295" alt="2E2D490F-5960-4AFC-8B65-A26CB3863231" src="https://github.com/user-attachments/assets/0df778ef-bacd-45ca-be7c-058da64b9119" />
-
 work in progress
 
