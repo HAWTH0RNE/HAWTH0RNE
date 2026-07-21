@@ -2,30 +2,24 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=nottheghost&label=☠︎︎&color=010101)
+![](https://komarev.com/ghpvc/?username=nottheghost&label=⚡︎&color=orange)
 
 
-
-<img width="20" height="20" alt="IMG_8770" src="https://github.com/user-attachments/assets/a6082316-0829-4a25-9ae6-9d3e314d6b42" />
-<img width="15" height="18" alt="IMG_8772" src="https://github.com/user-attachments/assets/a61a36da-6244-42e8-87d8-05d26a6373d5" />
-<img width="20" height="20" alt="IMG_8771" src="https://github.com/user-attachments/assets/f6403d68-ab19-456c-80c5-e7ca1b4fd1eb" />
-
-<img width="693" height="11" alt="IMG_8947" src="https://github.com/user-attachments/assets/f047f807-cc66-44fd-9c06-cb2e64c926b1" />
-️
-<img width="736" height="364" alt="IMG_8945" src="https://github.com/user-attachments/assets/8a4e72a9-8203-4f42-80ed-b48e00bb946b" />
+<img width="20" height="20" alt="IMG_9434" src="https://github.com/user-attachments/assets/019af97c-855f-4303-b927-7368feac58f0" />
+<img width="20" height="20" alt="IMG_9433" src="https://github.com/user-attachments/assets/c84e475a-e735-4d27-8674-d455251b0c06" />
+<img width="20" height="20" alt="IMG_9434" src="https://github.com/user-attachments/assets/392a4aa6-5492-4d05-ada6-e33b05bf7728" />
 
 
-
-<img width="99" height="56" alt="IMG_8777" src="https://github.com/user-attachments/assets/5aacb81d-0618-4eed-bdfe-112f24b28e6a" /> <img width="99" height="55" alt="IMG_8775" src="https://github.com/user-attachments/assets/3b7409e0-d71b-4b00-8819-c7b8def209a4" />
-
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 
-
-️<img width="693" height="11" alt="IMG_8947" src="https://github.com/user-attachments/assets/16cb0614-5f47-4e9f-b84f-f1ca9d8b3df2" />
-
+<img width="50%" height="50" alt="IMG_9442" src="https://github.com/user-attachments/assets/cbe9f75a-d7f5-401a-bf67-d73dabf21520" />
 
 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 
+<img width="4000" height="295" alt="2E2D490F-5960-4AFC-8B65-A26CB3863231" src="https://github.com/user-attachments/assets/0df778ef-bacd-45ca-be7c-058da64b9119" />
 
+work in progress
 
